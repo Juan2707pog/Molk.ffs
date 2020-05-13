@@ -1,1 +1,1 @@
-![Foto](https://imgur.com/a/rqkpch5.png "Mockup")
+![Foto](https://i.imgur.com/Zm5HR74.png "Mockup")
